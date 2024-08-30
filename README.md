@@ -17,7 +17,7 @@
 soooooooo...
 its pretty much just a generic game with the CPU.
 unless you dont know how to play (which would be weird) go to this link: https://www.google.com/search?q=how+do+you+play+rock+paper+scissors&rlz=1CAMXFW_enUS1108US1108&oq=how+do+you+play+rock&gs_lcrp=EgZjaHJvbWUqBwgAEAAYgAQyBwgAEAAYgAQyCQgBEEUYORiABDIHCAIQABiABDIHCAMQABiABDIHCAQQABiABDIHCAUQABiABDIHCAYQABiABDIHCAcQABiABDIHCAgQABiABDIHCAkQABiABNIBCTE0Mzg4ajBqN6gCALACAA&sourceid=chrome&ie=UTF-8&safe=active&ssui=on
-
+deez eez da peectures
 DUDE
 ![Screenshot 2024-08-30 6 02 54 PM](https://github.com/user-attachments/assets/12da56fa-0618-40b9-9c95-d7478a4e8485)
 DUDE
